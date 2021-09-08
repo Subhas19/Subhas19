@@ -1,4 +1,4 @@
-### Hey👋,I'm Subhash Nethra Vishnumolakala [linkedin](https://www.linkedin.com/in/subhash-nethra-vishnumolakala) 
+### Hey👋,I'm Subhash Nethra Vishnumolakala [linkedin](https://www.linkedin.com/in/subhash-nethra-vishnumolakala-406b76144/)
 
 **- 🔭 I’m currently working on** .. pursuing Masters in Applied Computer Science at Northwest Missouri State University ,USA and also Google DSC Lead at Northwest Missouri State University , being a passionate and dedicated to applying technology in ways that will change our community and our world for the better. I founded this chapter to bring together the curious, bright, and enthusiastic peers who want to help our community so that we can learn and grow together.
 
